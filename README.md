@@ -1,4 +1,4 @@
-# website
+# Marita Ibanez
 Visual artist, researcher and teacher. 
 2008 Bachelor of Arts from the PUCP, Pontific Catholic University from Peru
 2018 Monbukagakusho Scholar from the Government of Japan
